@@ -1,4 +1,4 @@
-**Hello, I'm Dik Pong **👋
+**Hello, I'm Dik Pong**👋
 
 **About Me**
 
